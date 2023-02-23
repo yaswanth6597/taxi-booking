@@ -12,3 +12,5 @@ hbds   chbbdhdsbchsadbh
  dscv sbd chdsbsahb
 sbdv bsv cb b vdhsbvcdcv. hdbcjndbcdnbcjd
 vdsc v bd cbvdv cbdvccvbhdvcbd c vhdbvchdbd
+bxz bcxc bc bc bc b c
+cnbd nd cnds 
